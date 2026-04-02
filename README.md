@@ -1,0 +1,1 @@
+Repository of financial decks and presentations including company overviews, industry analyses, and investment theses. Designed to reflect the formatting and storytelling standards of professional finance, with an emphasis on geopolitical risk and cross-border market dynamics informed by a background in international relations.
